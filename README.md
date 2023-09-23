@@ -9,8 +9,6 @@
 
 - 👨‍💻 All of my projects are available at [www.natkru.com](www.natkru.com)
 
-- 📫 How to reach me **kruknatalia@gmail.com**
-
 - 📄 Know about my experiences [https://drive.google.com/file/d/1V7EpUrNShUUhtNxzOMkCCieIGELUnwge/view?usp=sharing](https://drive.google.com/file/d/1V7EpUrNShUUhtNxzOMkCCieIGELUnwge/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
