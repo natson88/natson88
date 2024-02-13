@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [www.natkru.com](www.natkru.com)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1V7EpUrNShUUhtNxzOMkCCieIGELUnwge/view?usp=sharing](https://drive.google.com/file/d/1V7EpUrNShUUhtNxzOMkCCieIGELUnwge/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/17AUH0Ztx5LFGZL3onf9r6fGZAddeHlUP/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
